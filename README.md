@@ -14,11 +14,11 @@ FEATURES OF THE SOFTWARE:
 -Transferrable from one wallet to another
 -Support all wallet
 -Mail: Cryptolordtech@gmail.com
-WhatsApp Admin: +48 573 503 435
+WhatsApp Admin: +48 573 560 921
 
 FOLLOW THE LINK BELOW TO DOWNLOAD THE SOFTWARE:
 
-https://wa.me/48573503435
+https://wa.me/48573560921
 
 
 COPY THE LINK ABOVE ☝️ TO DOWNLOAD THE SOFTWARE 
